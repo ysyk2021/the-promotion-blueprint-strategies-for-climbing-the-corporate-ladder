@@ -1,4 +1,4 @@
-Chapter: Overview of the Book's Contents
+Overview of the Book's Contents
 ========================================
 
 Welcome to "The Promotion Blueprint: Strategies for Climbing the Corporate Ladder." In this chapter, we will provide an overview of the book's contents, giving you a glimpse into the valuable insights and strategies that lie ahead.
