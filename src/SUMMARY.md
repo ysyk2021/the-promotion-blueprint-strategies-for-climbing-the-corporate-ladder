@@ -2,7 +2,6 @@
 
 - [Chapter 1: Introduction](README.md)
   - [Importance of career progression](chapter-1-1.md)
-  - [Overview of the book's contents](chapter-1-2.md)
 - [Chapter 2: Understanding Career Advancement](chapter-2.md)
   - [Definition of career advancement and promotion](chapter-2-1.md)
   - [Common misconceptions about career advancement](chapter-2-2.md)
