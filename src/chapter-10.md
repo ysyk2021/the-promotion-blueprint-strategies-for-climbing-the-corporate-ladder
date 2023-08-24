@@ -1,5 +1,3 @@
-Chapter 10: Conclusion
-======================
 
 Summary of Key Points
 ---------------------

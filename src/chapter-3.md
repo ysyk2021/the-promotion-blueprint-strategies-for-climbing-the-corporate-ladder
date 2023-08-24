@@ -1,5 +1,3 @@
-Chapter 3: Techniques for Self-Advocacy
-=======================================
 
 Self-advocacy is a critical skill for career advancement, and there are many techniques and strategies that can help individuals effectively communicate their value and accomplishments in the workplace. In this chapter, we'll explore some of these techniques and strategies, as well as examples of individuals who have successfully advocated for themselves.
 

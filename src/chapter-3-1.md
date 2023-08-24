@@ -1,5 +1,3 @@
-Techniques for Self-Advocacy in the Workplace
-======================================================================================
 
 Self-advocacy is a critical skill for career advancement, and there are many techniques that can help individuals effectively communicate their value and accomplishments in the workplace. In this chapter, we'll explore some techniques for self-advocacy that can help you advance in your career.
 

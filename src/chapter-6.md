@@ -1,5 +1,3 @@
-Chapter 6: Navigating Office Politics
-=====================================
 
 Office politics are an inevitable part of the workplace. Understanding and navigating office politics is crucial for career advancement. In this chapter, we'll explore the importance of understanding and navigating office politics, strategies for managing relationships and conflicts in the workplace, and examples of individuals who successfully navigated office politics.
 

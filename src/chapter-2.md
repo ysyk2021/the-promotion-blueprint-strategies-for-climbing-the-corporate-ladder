@@ -1,5 +1,3 @@
-Chapter 2: Understanding Career Advancement
-===========================================
 
 Definition of Career Advancement and Promotion
 ----------------------------------------------

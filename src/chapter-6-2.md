@@ -1,5 +1,3 @@
-Strategies for Managing Relationships and Conflicts in the Workplace
-===========================================================================================================
 
 Navigating office politics can be challenging, but effective management of relationships and conflicts can help you achieve success and recognition within your organization. In this chapter, we'll explore strategies for managing relationships and conflicts in the workplace.
 

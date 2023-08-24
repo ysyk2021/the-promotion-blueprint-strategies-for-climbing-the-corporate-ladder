@@ -1,5 +1,3 @@
-Summary of Key Points
-=============================================
 
 In this book, we've explored strategies for climbing the corporate ladder and achieving career advancement. Here's a summary of the key points:
 

@@ -1,5 +1,3 @@
-Techniques for Building and Maintaining a Strong Professional Network
-========================================================================================================================
 
 Building a strong professional network is critical for career advancement. A strong professional network can provide access to new opportunities, new perspectives, and valuable insights. In this chapter, we'll explore techniques for building and maintaining a strong professional network.
 
